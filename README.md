@@ -1,0 +1,1 @@
+# Adilet-Capstone-Project
